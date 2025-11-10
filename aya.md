@@ -1,0 +1,1 @@
+Zhanibek Zhansaya 26
